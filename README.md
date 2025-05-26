@@ -1,0 +1,2 @@
+# Projeto-Agrinho-festa-junina
+OBJETIVO DE JUNTAR AS PESSOAS DO CAMPO E CIDADE.
